@@ -6,7 +6,7 @@
   <img src="https://media1.tenor.com/m/v_5IU6ypMdkAAAAC/higuruma-hiromi.gif">
 </div>
 
-<br/><sub>[Ata](https://deadlysentencing.straw.page)ㅤ[Straw]()</sub>
+<br/><sub>[Ata](https://deadlysentencing.straw.page)[Straw]()</sub>
 
 
 <!--
