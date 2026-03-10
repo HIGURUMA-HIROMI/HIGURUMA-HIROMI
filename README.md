@@ -7,7 +7,7 @@
   
 <br/><div align="center"> 
 
-[My love.](https://girosugisawa.straw.page)
+[ᴍʏ ᴅᴇᴀʀᴇꜱᴛ ʟᴏᴠᴇ, ɢɪʀᴏ ꜱᴜɢɪꜱᴀᴡᴀ.](https://girosugisawa.straw.page)
 <!--
 **deadly-sentencing/deadly-sentencing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
