@@ -6,7 +6,7 @@
   <img src="https://c.tenor.com/5pYsDiR-5awAAAAd/tenor.gif">
   
 <br/><div align="center"> 
-[ᴍʏ ᴅᴇᴀʀᴇꜱᴛ ʟᴏᴠᴇ, ɢɪʀᴏ ꜱᴜɢɪꜱᴀᴡᴀ.](https://sugisawa.straw.page)
+[ᴍʏ ᴅᴇᴀʀᴇꜱᴛ ʟᴏᴠᴇ, ɢɪʀᴏ ꜱᴜɢɪꜱᴀᴡᴀ.](https://lawyersdiary.straw.page)
 <!--
 **deadly-sentencing/deadly-sentencing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
